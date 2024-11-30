@@ -9,7 +9,7 @@
 
 C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 ![alt text](https://i.ibb.co/QYgmwxq/IMG-4991.gif)
 
- ☆ ｜INFP ｜ He⁄they ｜ Introvert․
+ ☆ ｜INFP ｜ He⁄they ｜ Introvert․ ![alt text](https://i.ibb.co/jyWyZQG/IMG-6996.gif)
 
   ![alt text](https://cdn.discordapp.com/emojis/1113872942758105168.webp?size=40&quality=lossless) ![alt text](https://cdn.discordapp.com/emojis/1113883125899083828.webp?size=40&quality=lossless)
      ![alt text](https://cdn.discordapp.com/emojis/1113883836699390012.webp?size=40&quality=lossless)
