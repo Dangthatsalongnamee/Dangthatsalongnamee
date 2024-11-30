@@ -7,7 +7,7 @@
 
                              C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡
 
-                             ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
+                             ☆ ｜INFP ｜ He⁄they ｜ Introvert․
 
                                yes i do make a whole new github for like everything.
 
