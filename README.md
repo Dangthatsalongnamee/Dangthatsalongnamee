@@ -9,7 +9,7 @@
 
                              ☆ ｜INFP ｜ He⁄they ｜ Introvert․
  
-                                 ![alt text](![image](https://github.com/user-attachments/assets/8a67525e-9b2e-485d-9d63-f62e7bcf3c89)
+                                 ![alt text](![image](https://cdn.discordapp.com/emojis/1113872942758105168.webp?size=40&quality=lossless)
                                yes i do make a whole new github for like everything.
 
                                pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
