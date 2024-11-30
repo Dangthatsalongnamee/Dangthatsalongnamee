@@ -3,12 +3,12 @@
 
 
 
-hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆
+                                hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆
 
-C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡
+                              C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡
 
-☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
+                              ☆ ｜INFP ｜ He⁄they （Gender fluid） ｜ ｜ Introvert․
 
-yes i do make a whole new github for like everything.
+                                    yes i do make a whole new github for like everything.
 
-pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
+                                   pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
