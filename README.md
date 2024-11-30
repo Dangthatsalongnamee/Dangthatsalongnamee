@@ -20,6 +20,6 @@ C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 !
 
   pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
 
-
+     ⋆  ۪      ♩    ┈    𝗒𝗈𝗎'𝗋𝖾 𝖺 𝗅𝗈𝗌𝖾𝗋, 𝑏𝑎𝑏𝑦   ♡ 彡    ⁎    ⁺
 ![alt text](https://i.ibb.co/jyWyZQG/IMG-6996.gif)
 
