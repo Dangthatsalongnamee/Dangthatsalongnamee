@@ -21,4 +21,5 @@ C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 !
   pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
 
 
+![alt text](https://i.ibb.co/jyWyZQG/IMG-6996.gif)
 
