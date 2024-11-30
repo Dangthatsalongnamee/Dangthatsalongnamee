@@ -4,7 +4,7 @@
 
 ![alt text](https://64.media.tumblr.com/1b36035d6b72a6994dd44fd34cd27ebc/ba996cf89dd74010-3a/s2048x3072/9d9590bdd70b3857dae38d39e380128629d3ed97.pnj)
 
-This is my world in the dark...          ♱  
+ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
  hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆ ![alt text](https://i.ibb.co/mbsXzrr/IMG-6630.gif)
 
