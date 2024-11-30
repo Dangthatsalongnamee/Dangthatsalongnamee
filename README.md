@@ -8,7 +8,8 @@
                              C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡
 
                              ☆ ｜INFP ｜ He⁄they ｜ Introvert․
-
+ 
+                                 ![alt text](![image](https://github.com/user-attachments/assets/8a67525e-9b2e-485d-9d63-f62e7bcf3c89)
                                yes i do make a whole new github for like everything.
 
                                pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
