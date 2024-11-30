@@ -1,6 +1,6 @@
 ![alt text](https://64.media.tumblr.com/bea8b2766aa8c50357a58b7597402585/e36fc3c797d1156a-26/s400x600/dbf369d36cefc42c8405876da7cc363e46ae40d9.pnj)![alt text](https://64.media.tumblr.com/bea8b2766aa8c50357a58b7597402585/e36fc3c797d1156a-26/s400x600/dbf369d36cefc42c8405876da7cc363e46ae40d9.pnj)
 
-
+![alt text](https://64.media.tumblr.com/1b36035d6b72a6994dd44fd34cd27ebc/ba996cf89dd74010-3a/s2048x3072/9d9590bdd70b3857dae38d39e380128629d3ed97.pnj)
 
 
   hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆
@@ -18,4 +18,4 @@ C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡
 
   pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!!
 
-![alt text](https://64.media.tumblr.com/1b36035d6b72a6994dd44fd34cd27ebc/ba996cf89dd74010-3a/s2048x3072/9d9590bdd70b3857dae38d39e380128629d3ed97.pnj)
+
