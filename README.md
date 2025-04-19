@@ -16,9 +16,9 @@ C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 !
      ![alt text](https://cdn.discordapp.com/emojis/1113883836699390012.webp?size=40&quality=lossless)
                      
  yes i do make a whole new github for like everything. ![alt text](https://pixels.crd.co/assets/images/gallery02/88488dee.gif?v=99d3974e)
-  ![alt text](https://64.media.tumblr.com/80fddbab5175dba5fd827968fd3ad886/e5cde90135c8fe90-93/s640x960/fc5aa7c29be760ba52c5f43f256111912d7bf6d5.pnj)    
+  
   pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!! ![alt text](https://i.ibb.co/pb3jP7W/IMG-6364.gif)
-
+  ![alt text](https://64.media.tumblr.com/80fddbab5175dba5fd827968fd3ad886/e5cde90135c8fe90-93/s640x960/fc5aa7c29be760ba52c5f43f256111912d7bf6d5.pnj)    
 
      ⋆  ۪      ♩    ┈    The show must go on   ♡ 彡    ⁎    ⁺
 ![alt text](https://i.ibb.co/n3VrsDM/IMG-7161.gif)
