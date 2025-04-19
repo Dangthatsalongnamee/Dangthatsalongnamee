@@ -2,7 +2,7 @@
 
 <p align="center">               
 <img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="900" height="300">
- <p align="center"> $${\color{orchid}
+ <p align="center"> $${\color{cyan}
   SCOTT    or    GEM }$$
 <p align="center"> $${\color{orchid}
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
