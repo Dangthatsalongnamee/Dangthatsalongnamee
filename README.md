@@ -5,7 +5,8 @@
  <p align="center"> $${\color{orchid}
   SCOTT    or    GEM }$$
 <p align="center"> $${\color{orchid}
- C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ }$$
+ 
+C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ }$$
 <p align="center"> $${\color{orchid}
   any  prns     minor     infp }$$
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
