@@ -2,7 +2,7 @@
 
 ![alt text](https://64.media.tumblr.com/bea8b2766aa8c50357a58b7597402585/e36fc3c797d1156a-26/s400x600/dbf369d36cefc42c8405876da7cc363e46ae40d9.pnj)![alt text](https://64.media.tumblr.com/bea8b2766aa8c50357a58b7597402585/e36fc3c797d1156a-26/s400x600/dbf369d36cefc42c8405876da7cc363e46ae40d9.pnj)
 
-<img src="https://media.discordapp.net/attachments/1052873893028843574/1362990466869628948/Untitled280_20250418221716.png?ex=6804674a&is=680315ca&hm=1e06faebafa831e4f434d5af027bd33dd0365a749e13cefab66d57eaa17265fd&=&format=webp&quality=lossless" width="100" height="100">
+<img src="https://media.discordapp.net/attachments/1052873893028843574/1362990466869628948/Untitled280_20250418221716.png?ex=6804674a&is=680315ca&hm=1e06faebafa831e4f434d5af027bd33dd0365a749e13cefab66d57eaa17265fd&=&format=webp&quality=lossless" width="200" height="100">
 
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
