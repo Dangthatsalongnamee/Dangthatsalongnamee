@@ -26,3 +26,4 @@ C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 !
 ![alt text](https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj)
 
 
+<code style="color : Cyan">Test</code>
