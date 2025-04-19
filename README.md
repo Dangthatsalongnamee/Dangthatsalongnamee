@@ -8,6 +8,7 @@
    C+H    is fine    also feel free to int! }$$
 <p align="center"> $${\color{orchid}
   any  prns     minor     infp }$$
+
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
  hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆ ![alt text](https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv)
