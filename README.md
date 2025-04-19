@@ -1,7 +1,7 @@
 ![alt text](https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj)
 
 <p align="center">               
-<img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="440" height="770">
+<img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="440" height="200">
  
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
