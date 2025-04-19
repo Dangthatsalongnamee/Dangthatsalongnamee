@@ -6,7 +6,7 @@
   ![alt text](https://64.media.tumblr.com/80fddbab5175dba5fd827968fd3ad886/e5cde90135c8fe90-93/s640x960/fc5aa7c29be760ba52c5f43f256111912d7bf6d5.pnj)    
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
- hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆ ![alt text](https://i.ibb.co/mbsXzrr/IMG-6630.gif)
+ hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆ ![alt text](https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv)
 
 C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 ![alt text](https://i.ibb.co/QYgmwxq/IMG-4991.gif)
 
