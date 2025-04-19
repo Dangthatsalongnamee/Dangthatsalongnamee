@@ -5,7 +5,7 @@
  <p align="center"> $${\color{orchid}
   SCOTT    or    GEM }$$
 <p align="center"> $${\color{orchid}
-   C+H    is ‎  ok    also feel free to int! }$$
+   C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{orchid}
   any  prns     minor     infp }$$
 <p align="center">  
