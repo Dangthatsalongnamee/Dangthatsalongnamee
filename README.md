@@ -15,9 +15,6 @@
 hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆  ![alt text](https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv)
 
 
- ☆ ┆彡 ![alt text](https://pixels.crd.co/assets/images/gallery61/99df91a2.gif?v=99d3974e)
-
- ☆ ｜INFP ｜ He⁄they ｜ Introvert․ ![alt text](https://pixels.crd.co/assets/images/gallery13/43a650d3.gif?v=99d3974e)
 
   ![alt text](https://cdn.discordapp.com/emojis/1113872942758105168.webp?size=40&quality=lossless) ![alt text](https://cdn.discordapp.com/emojis/1113883125899083828.webp?size=40&quality=lossless)
      ![alt text](https://cdn.discordapp.com/emojis/1113883836699390012.webp?size=40&quality=lossless)
