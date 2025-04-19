@@ -2,7 +2,7 @@
 
 ![alt text](https://64.media.tumblr.com/bea8b2766aa8c50357a58b7597402585/e36fc3c797d1156a-26/s400x600/dbf369d36cefc42c8405876da7cc363e46ae40d9.pnj)![alt text](https://64.media.tumblr.com/bea8b2766aa8c50357a58b7597402585/e36fc3c797d1156a-26/s400x600/dbf369d36cefc42c8405876da7cc363e46ae40d9.pnj)
 
-![alt text](https://discord.com/channels/1052873892278054922/1052873893028843574/1362982690739192000)
+![alt text](https://cdn.discordapp.com/attachments/1052873893028843574/1362982690541801655/Untitled277_20250418214625.png?ex=6804600c&is=68030e8c&hm=5004288e4efa268e06736aefe10758921e86f027a0591c93eb811a3a8d4b3bd1&)
 
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
