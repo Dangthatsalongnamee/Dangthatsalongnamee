@@ -3,7 +3,7 @@
 
 <img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="700" height="300">
 
-
+  ![alt text](https://64.media.tumblr.com/80fddbab5175dba5fd827968fd3ad886/e5cde90135c8fe90-93/s640x960/fc5aa7c29be760ba52c5f43f256111912d7bf6d5.pnj)    
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
  hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆ ![alt text](https://i.ibb.co/mbsXzrr/IMG-6630.gif)
