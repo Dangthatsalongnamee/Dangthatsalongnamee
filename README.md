@@ -20,10 +20,10 @@ C+H is fine!! also feel free to int or send me a Whisper if im afk! ☆ ┆彡 !
   pls pls be my friend i dont bite if u wanna be friends PLEASEEE INT!!! ![alt text](https://i.ibb.co/pb3jP7W/IMG-6364.gif)
 
 
-
+<img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="700" height="300">
      ⋆  ۪      ♩    ┈    The show must go on   ♡ 彡    ⁎    ⁺
 ![alt text](https://i.ibb.co/n3VrsDM/IMG-7161.gif)
-<img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="700" height="300">
+
 ![alt text](https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj)
 
 
