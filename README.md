@@ -2,7 +2,7 @@
 
 ![alt text](https://64.media.tumblr.com/2ea0d99e5c01f2f96155c04d5387b017/e5cde90135c8fe90-0f/s1280x1920/c67c41be074ef1c128bea094d79c74345f59826e.pnj)
 
-<img src="![image](https://github.com/user-attachments/assets/6307ae4f-a260-40be-a0fe-1f5932a322a5)&" width="900" height="300">
+<img src="![image](https://cdn.discordapp.com/attachments/1052873893028843574/1362982690541801655/Untitled277_20250418214625.png?ex=6804600c&is=68030e8c&hm=5004288e4efa268e06736aefe10758921e86f027a0591c93eb811a3a8d4b3bd1&)&" width="900" height="300">
 
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
