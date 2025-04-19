@@ -2,8 +2,9 @@
 
 
 <img src="https://media.discordapp.net/attachments/1052873893028843574/1362994386731925606/Untitled280_20250418223255.png?ex=68046af1&is=68031971&hm=0cc7ba1de50771db9a77ca358ce9bec15088cef3c04ee325eeef1a9072200aef&=&format=webp&quality=lossless" width="700" height="300">
-![alt text](https://64.media.tumblr.com/2ea0d99e5c01f2f96155c04d5387b017/e5cde90135c8fe90-0f/s1280x1920/c67c41be074ef1c128bea094d79c74345f59826e.pnj)
 
+![alt text](![image](https://github.com/user-attachments/assets/e37d84b8-6d6f-4ff6-af86-fc56cc4bc035)
+)
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  
  hi!!! I go by gem,scott,pearl. or by whatever pony im in ^^ ☆ ![alt text](https://i.ibb.co/mbsXzrr/IMG-6630.gif)
