@@ -6,7 +6,7 @@
   SCOTT    or    GEM }$$
 <p align="center"> $${\color{aqua}
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
-<p align="center"> $${\color{orchid}
+<p align="center"> $${\color{cyan}
   he /they     minor     infp }$$
 <p align="center">  
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
