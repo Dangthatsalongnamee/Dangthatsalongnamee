@@ -7,7 +7,7 @@
 <p align="center"> $${\color{orchid}
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{orchid}
-  any  prns     minor     infp }$$
+  he / they     minor     infp }$$
 <p align="center">  
 ᴛʜɪꜱ ɪꜱ ᴍʏ ᴡᴏʀʟᴅ ɪɴ ᴛʜᴇ ᴅᴀʀᴋ...          ♱  
  <p align="center">  
