@@ -1,7 +1,7 @@
 ![alt text](https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj)
 
 <p align="center">               
-<img src="https://media.discordapp.net/attachments/1052873893028843574/1411844409028247582/Untitled280.png?ex=68b62211&is=68b4d091&hm=578d5799d481fd5176c19f523c990f3c86923e4fac54dd5fecfa06e28f44d83f&=&format=webp&quality=lossless" width="900" height="300">
+<img src="https://shorturl.at/E1VLQ" width="900" height="300">
  <p align="center"> $${\color{cyan}
   SCOTT    or    GEM }$$
 <p align="center"> $${\color{aqua}
